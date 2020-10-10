@@ -1,1 +1,0 @@
-# sudheeradh.github.io
